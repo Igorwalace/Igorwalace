@@ -1,4 +1,4 @@
-Olá. Meu nome é Igor Wallace, tenho 17 anos, com intimidade com tecnologia desde os 8 anos de idade. Sou um Desenvolvedor Web em Formação buscando como objetivo Full-Stack.
+Olá. Meu nome é Igor Wallace, tenho 17 anos, com intimidade com tecnologia desde os 8 anos de idade. Sou um Desenvolvedor Web em Formação buscando como primeiro objetivo Full-Stack.
 
 Estudo diariamente 4 a 6 horas por dia, de segunda a sábado, através da plataforma Danki-Code, desde Abril de 2023.
 
