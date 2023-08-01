@@ -6,6 +6,10 @@ Objetivo do perfil também, é mostrar minha evolução com projetos práticos, 
 
 Se puder, me chame pra conversar sobre algo que viu no meu perfil que possa ser melhorado, estou sempre aberto a dicas e feedbacks.
 
-Para entrar em contato comigo, deixo abaixo link do meu e-mail pessoal. Você também pode dar uma olhada no meu portfólio, onde público projetos para mostrar meus conhecimentos e comento sobre mim, link está na bio! 
+Para entrar em contato comigo, deixo abaixo link do meu e-mail pessoal. Você também pode dar uma olhada no meu portfólio, onde público projetos para mostrar meus conhecimentos e comento sobre mim, link esa abaixo! 
 
+E-mail:
 igorwallacy3@gmail.com
+
+Portfólio:
+https://igorwallace.netlify.app/
