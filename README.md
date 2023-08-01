@@ -6,6 +6,6 @@ Objetivo do perfil também, é mostrar minha evolução com projetos práticos, 
 
 Se puder, me chame pra conversar sobre algo que viu no meu perfil que possa ser melhorado, estou sempre aberto a dicas e feedbacks.
 
-Para me encontrar em outras redes, deixo abaixo link do meu perfil pessoal. 
+Para entrar em contato comigo, deixo abaixo link do meu e-mail pessoal. Você também pode dar uma olhada no meu portfólio, onde público projetos para mostrar meus conhecimentos e comento sobre mim, link está na bio! 
 
-https://instagram.com/igor_walace?igshid=YmMyMTA2M2Y=
+igorwallacy3@gmail.com
